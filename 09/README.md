@@ -1,3 +1,3 @@
 ## Título: ?
 ### N°: 9
-### Ideas: ?
+### Ideas: Navidad vista desde afuera.

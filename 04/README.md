@@ -1,3 +1,3 @@
 ## Título: ?
 ### N°: 4
-### Ideas: ?
+### Ideas: Algo tipo Amarga Navidad.

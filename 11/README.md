@@ -1,3 +1,3 @@
 ## Título: ?
 ### N°: 11
-### Ideas: ?
+### Ideas: Una navidad marginal. NV.

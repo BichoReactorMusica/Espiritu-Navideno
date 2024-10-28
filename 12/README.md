@@ -1,3 +1,3 @@
 ## Título: ?
 ### N°: 12
-### Ideas: ?
+### Ideas: A la mierda la Navidad.

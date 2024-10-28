@@ -1,3 +1,3 @@
 ## Título: ?
 ### N°: 2
-### Ideas: ?
+### Ideas: Algo con las voces, tipo The Beach Boys.

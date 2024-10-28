@@ -1,3 +1,3 @@
 ## Título: ?
 ### N°: 5
-### Ideas: ?
+### Ideas: Algo sobre la tristeza por los que ya no están.

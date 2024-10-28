@@ -1,3 +1,3 @@
 ## Título: ?
 ### N°: 1
-### Ideas: ?
+### Ideas: Introducción, tema instrumental. Cortito.

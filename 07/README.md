@@ -1,3 +1,3 @@
 ## Título: ?
 ### N°: 7
-### Ideas: ?
+### Ideas: Cuestionamiento a Dios

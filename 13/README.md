@@ -1,3 +1,3 @@
 ## Título: ?
 ### N°: 13
-### Ideas: ?
+### Ideas: Instrumental que termina piníendose rockero o algo así.

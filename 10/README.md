@@ -1,3 +1,3 @@
 ## Título: ?
 ### N°: 10
-### Ideas: ?
+### Ideas: Otro tipo The Beach Boys.
